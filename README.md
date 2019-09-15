@@ -1,2 +1,2 @@
-# Flat-Earth
-Breaking the COnditioning 
+# Flat Earth
+Breaking the Conditioning 
